@@ -1,5 +1,5 @@
 <div align="center">
-<img width="1300" height="130" alt="image" src="https://github.com/user-attachments/assets/b11b11ea-ffdb-4305-be2b-c684534f663e" />
+<img width="700" height="130" alt="image" src="https://github.com/user-attachments/assets/b11b11ea-ffdb-4305-be2b-c684534f663e" />
 <br>
 <img src="https://github.com/user-attachments/assets/d98aaa49-9d35-4c7e-9407-3d198da2171c" align="left" width="300" height="300" /> 
 
@@ -25,4 +25,4 @@ No ttgs ♡ I don't use them either <br>
 <img src="https://github.com/user-attachments/assets/670893fe-bb3b-4126-86a4-c7154d8bf6cd" width="20" height="20" /> , , ![](https://komarev.com/ghpvc/?username=TAMSY-CAINES&color=e7ddcd&style=social&label=✦&abbreviated=true)
 
 <div align="center">
-<img width="1300" height="130" alt="image" src="https://github.com/user-attachments/assets/aa07c2f7-7501-4f78-b62d-3e7bb9d71f91" />
+<img width="700" height="130" alt="image" src="https://github.com/user-attachments/assets/aa07c2f7-7501-4f78-b62d-3e7bb9d71f91" />
