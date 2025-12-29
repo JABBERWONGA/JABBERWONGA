@@ -1,3 +1,28 @@
-<img src="https://file.garden/aD-uXN3dUA2X1CGJ/IMG_5336.png" width="430" height="1" /> ![](https://komarev.com/ghpvc/?username=JABBERWONGA&color=3b1d59&style=plastic&label=☆&abbreviated=true)
-<p align = center> <img src="https://media1.tenor.com/m/Qv4bw72HGuAAAAAC/gachiakuta-jabber.gif" alt="clap yo hands stomp yo feet"> </p>
-<p align = center> <a href="https://burgerwolf7.atabook.org">atabook</a> ⠀ <a href="https://rentry.co/gtfos">dni</a> </p>
+<div align="center">
+<img width="1300" height="130" alt="image" src="https://github.com/user-attachments/assets/b11b11ea-ffdb-4305-be2b-c684534f663e" />
+<br>
+<img src="https://github.com/user-attachments/assets/d98aaa49-9d35-4c7e-9407-3d198da2171c" align="left" width="400" height="400" /> 
+
+<p align="center">
+  
+### . Amb*rose* ✧ *Vel*vet .
+<img src="https://github.com/user-attachments/assets/6ee26c52-2733-43cf-8dba-d5104f2feadd" width="20" height="20" />
+
+</p>
+
+⠀<img src="https://github.com/user-attachments/assets/cda40651-b32f-4e7c-aa26-bebd0c1a8dcf" width="500" />
+<p align="center">
+AuADHD System <br>
+I tend to be blunt , but im nice trust <br>
+Sometimes the talker ever <br>
+Pretty socially anxious , I don't make the first step in interacting like ever <br>
+Sitting with my boyfriend usually heh <br>
+I don't int with fandom areas they stress me out so bad <br>
+No ttgs ♡ I don't use them either <br>
+</p>
+
+
+<img src="https://github.com/user-attachments/assets/670893fe-bb3b-4126-86a4-c7154d8bf6cd" width="20" height="20" /> , , ![](https://komarev.com/ghpvc/?username=TAMSY-CAINES&color=e7ddcd&style=social&label=✦&abbreviated=true)
+
+<div align="center">
+<img width="1300" height="130" alt="image" src="https://github.com/user-attachments/assets/aa07c2f7-7501-4f78-b62d-3e7bb9d71f91" />
